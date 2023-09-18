@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @34Ideas
 - 👀 I’m interested in uderstanding of this community
-- 🌱 I’m currently learning Product management 
 - 💞️ I’m looking to collaborate on Code part and overall understanding of this ecosystem
 - 📫 Reachout to me at 34Ideasthinklabpvtltd@gmail.com
 
